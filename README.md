@@ -1,4 +1,4 @@
-# **About Me** Samuel Muren
+# **About Me:** Samuel Muren
 
 I've known that I wanted to work in the media world since I was in middle school. I fell in love with the production of news and entertainment media. The last six years have been an amazing blessing to learn and enhance my media skills through school and real-life experiences.
 
@@ -6,14 +6,31 @@ The path on this journey began with the commentary of former St. Louis Blues TV 
 
 Media is everything I've dedicated my life's work to. I enjoy creating content in front of the camera or behind. I've learned various skills over the years, and my goal is to be the most proficient in every media skill in our industry.
 
-# **Connect with Me**
-**Instagram:** *@s_muren17 | https://www.instagram.com/s_muren17/*
+## My Interests
+
+Since the fourth grade, I've fallen in love with hockey. The lack of playing talent has led me into the sports media field. My area of study would focus on media professionals and their relationships with athletes, coaches, and sports management. 
+
+### Jobs and Involvement
+**At SIUE**
+
+*SIUE Club Hockey Sports Broadcaster*
+
+*SIUE Mass Communication Club Vice President*
+
+*SIUE The Alestle Graduate Assistant and Podcast Producer*
+
+**Experiences**
+
+*Prepcasts Broadcaster*
+
+## **Connect with Me**
+**Instagram:** *@s_muren17* *(https://www.instagram.com/s_muren17/)*
 
 **LinkedIn:** 
 
 **YouTube:**
 
-**Website:** *Samuel Muren Portfolio | https://samuelmurenportfolio.base44.app/Home*
+**Website:** *Samuel Muren Portfolio* *(https://samuelmurenportfolio.base44.app/Home)*
 
 **Email:** *muren2004*
 
